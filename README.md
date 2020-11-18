@@ -1,1 +1,1 @@
-# -hello-world
+# -hello-world.......i came at this by reading github manual....i have high hopes for this site that i can do a little programming.....i told my friends about it too. anyway i m orasenpaii and i m a student......i dont know anything about coding.....my family is in it buisness and r very intelligent in coding i want to be like them too....so my big brother reccomended github.
